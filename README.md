@@ -32,7 +32,6 @@ LINKY - Artist
 Zach_TheKing - Musician
 UltimateEmoWillow - Artist (Working on her pokefangame)
 Zedekiel - Voice-Actor
-Callum - Artist, Programmer, Charter, Animator
 And many more.
 
 Ligma--
